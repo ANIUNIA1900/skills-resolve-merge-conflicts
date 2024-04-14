@@ -1,0 +1,1 @@
+niezgodny tekst
